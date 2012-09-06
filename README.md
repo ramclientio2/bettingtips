@@ -1,0 +1,4 @@
+bettingtips
+===========
+
+About Bet
